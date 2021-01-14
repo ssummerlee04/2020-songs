@@ -12,46 +12,39 @@ With 2020 having come to an end, here is a rewrap of the top 10 songs from this 
 
 1. Greece by DJ Khaled ft. Drake 
 
-https://www.youtube.com/watch?v=NMlBB2pK5qo 
-
 2. At my Worst by Pink Sweats
-
-https://www.youtube.com/watch?v=8CEJoCr_9UI
 
 3. B.S. by Jhene Aiko ft. H.E.R.
 
-https://www.youtube.com/watch?v=tXZ_B8Amy00
-
 4. Come & Go by Juice Wrld ft. Marshmello
-
-https://www.youtube.com/watch?v=5Di20x6vVVU
 
 5. Good Days by SZA
 
-https://www.youtube.com/watch?v=oh64haEP9g8
-
 6. Best Things by Inayah
-
-https://www.youtube.com/watch?v=9HvCLsThv8I
 
 7.You can have him by Ann Marie
 
-https://www.youtube.com/watch?v=wAV26bIYbKA
-
 8. You Got It by Vedo
-
-https://www.youtube.com/watch?v=BKJDpuUfXxA
 
 9. Everybody Business by Kehlani
 
+10.Put in Work by Jacquees ft. Chris Brown 
+
+
+# song links
+
+[Link](
+https://www.youtube.com/watch?v=NMlBB2pK5qo 
+https://www.youtube.com/watch?v=8CEJoCr_9UI
+https://www.youtube.com/watch?v=tXZ_B8Amy00
+https://www.youtube.com/watch?v=5Di20x6vVVU
+https://www.youtube.com/watch?v=oh64haEP9g8
+https://www.youtube.com/watch?v=9HvCLsThv8I
+https://www.youtube.com/watch?v=wAV26bIYbKA
+https://www.youtube.com/watch?v=BKJDpuUfXxA
 https://www.youtube.com/watch?v=pq1VJx72fFU
-
-10.Put in Work by Jacquees ft. Chris Brown
-
-https://www.youtube.com/watch?v=3H_HgMEe_u4 
+https://www.youtube.com/watch?v=3H_HgMEe_u4) and ![Image](https://i.pinimg.com/originals/4b/ec/bf/4becbfc976a8a542ea37038f942db310.jpg )
 
 
-
-https://i.pinimg.com/originals/4b/ec/bf/4becbfc976a8a542ea37038f942db310.jpg
 ```
 
